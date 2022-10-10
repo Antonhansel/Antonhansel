@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @Antonhansel
+- 👀 I've worked in many industries: music, finance and investment, cryptocurrencies, marketing automation, education...
+- 💥 I've started companies (and failed pretty hard sometimes) and worked as an employee in many others. I'm now a freelancer so I can discover new industries and people more often.
+- 🌱 Even if I'm not available right now, I am always excited to get coffee and talk about your future ventures, give some advice if possible or just say hi :)
+- 💞️ Also, I write technical stuff @ https://antonin.cool, I put some of my work on https://github.com/antonhansel and I write a blockchain focused newsletter on https://cryptolettre.substack.com/ (in french)
+- 🖇 You can reach out on https://www.linkedin.com/in/antoninribeaud/ :) 
